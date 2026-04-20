@@ -38,14 +38,4 @@ Completed curriculum covering Excel, SQL, and Power BI dashboard development
 🎓 Education
 Bachelor of Engineering – Electronics & Telecommunication
 Sant Gadge Baba Amravati University | 2022 – 2026
-📊 GitHub Stats
-�
-�
-Load image
-Load image
-📬 Let's Connect!
-�
-�
-Load image
-Load image
 ⭐ "Data is the new oil — and I love refining it."
